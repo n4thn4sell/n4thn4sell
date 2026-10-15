@@ -1,3 +1,1 @@
-                  ![Demo Video](https://github.com/user-attachments/assets/c6cc57e7-bed3-4dcb-a022-b9d763e05823)
-                  
-  ༉ ‧₊ ˚. .𖥔 ݁ ˖  — ᨳଓ .𝘯𝘢𝘵𝘩𝘢𝘯 𝘧𝘳𝘦𝘦𝘭𝘪𝘯𝘨! ࣪ ִ  𓏲 ๋࣭   ࣪ ˖
+<img width="1200" height="675" alt="IMG_5258" src="https://github.com/user-attachments/assets/db388ac1-539b-4df9-8e9b-ad6d07fa16dd" />
